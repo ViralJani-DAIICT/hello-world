@@ -6,4 +6,6 @@ Thus upto 5th september i will clear all my doubts of technical subjects and I w
 That makes me feel confident and clarifies my mind.
 Finish daily routine and stay happy.
 
+Another changes made.
+
 Viral Jani
